@@ -10,6 +10,8 @@ Meu nome é Gabriel Gouveia
 
 gabriel.gouveia.santos@escola.pr.gov.br
 
-@cwb_bieelz
+@cwb_bieelzs
 
-![](https://media1.tenor.com/m/6Y0siLHUzG4AAAAd/piseiro-de-marte-pb-ruiva-mari.gif)
+![](https://github.com/user-attachments/assets/2a1d7731-1e52-4f20-837f-8b3afa019ffb)
+
+
